@@ -8,3 +8,8 @@ Meu nome é Alana Queiroz
 
 ### Voce entrar em contato comigo 📫
 
+alana.saldanha.queiroz@escola.pr.gov.br
+
+alanaqueiroz78@gmail.com 
+
+!.[]. https://media1.tenor.com/m/6QY-2NYOFTsAAAAC/disney.gif
