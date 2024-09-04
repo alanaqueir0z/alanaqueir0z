@@ -12,4 +12,4 @@ alana.saldanha.queiroz@escola.pr.gov.br
 
 alanaqueiroz78@gmail.com 
 
-!.[]. https://media1.tenor.com/m/6QY-2NYOFTsAAAAC/disney.gif
+![](https://media1.tenor.com/m/6QY-2NYOFTsAAAAC/disney.gif)
